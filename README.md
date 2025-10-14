@@ -1,0 +1,1 @@
+# gnintezemo-daily-report
